@@ -1,4 +1,4 @@
-# 
+# automatic CCleaner para PC addons é o melhor CCleaner para PC addons com limpeza de registro e exclusao de arquivos. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
